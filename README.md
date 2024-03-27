@@ -4,7 +4,7 @@ Disusun oleh:
 
 Alycia Y Br Sinaga (080)
 
-Annastasya Aqila C(109)
+Annastasya Aqila C (109)
 
 Dosen Pengampu:
 
