@@ -9,11 +9,3 @@ Annastasya Aqila C(109)
 Dosen Pengampu:
 
 Andi Iwan Nurhidayat, S. Kom., M. T.
-
-PROGRAM STUDI D4 MANAJEMEN INFORMATIKA
-
-FAKULTAS VOKASI
-
-UNIVERSITAS NEGERI SURABAYA
-
-2024
